@@ -96,19 +96,19 @@ Clark吞了吞口水。他浑身的皮肤都在刺痛，他无助、无意识地
 
 他没有费心把内裤脱下。他设法把裤子从大腿上褪下，手指在途中蹭过鸡巴，即使隔着布料，也让他难以忍受。他无助地动了动，将被困住的勃起的阴茎的推到掌心，然后用手拢住它，挤压，他已经非常兴奋了，天哪--布料变得潮湿、粘连，它紧紧地贴在上面，当他的手在自己的形状上摩擦时，那种感觉是如此美妙，让他浑身颤抖。然后糟糕，门，他能感觉到铰链在晃动；他跌跌撞撞地离开门，从地板上站起来，扑向自己的床，因为他不能一边走路一边自慰，不能忍受把手从自己身上移开，至少如果他躺着，如果他脚下没有地板支撑，他就可能不会捏碎什么东西。
 
-He landed as gently as he could manage. Which at this point meant he got close and then bumped the heel of his hand against the head of his cock by mistake, where it was shoved up against the waistband of his briefs, and choked, jerked a foot higher through the air and then fell the whole way at once. And it was stupid, but it was—the change, from floating effortlessly to letting gravity drag him down again, felt almost like a weight settling over him; felt almost like a body settling over him, like being pressed into place and then held there firmly. Like he wasn't supposed to get up again, like he wasn't allowed to, and jesus, that was so goddamn good—
+他尽可能地轻轻落在床上。这意味着，他在接近时，手跟不小心碰到了龟头，它紧贴着他的内裤腰带，他噎住了，在空中又升高了一英尺，然后整个人一下子掉了下去。这很蠢，但是它——这种变化，从毫不费力地漂浮到让地心引力再次将他拖拽下来，就像一个重物压在他身上；感觉就像一具身体的重量压在他身上，就像被压在原地，然后被牢牢地固定在那里。就像他不应该再站起来，就像他不被允许站起来，天哪，这真他妈的太好了--。
 
-He cried out, muffled, around the base of his thumb, and squirmed as he stroked himself harder, dragged the wet fabric of his briefs up and down his cock. His pants were still open around his thighs; the flight across the room hadn't been long enough or fast enough to pull them off him. He still had his goddamn shoes on, and he had to look obscene—like he couldn't even control himself long enough to get out of his clothes. But he couldn't, jesus, and the shame of it made his face hot, made his gut tight, but he still couldn't stop. It only made it worse, the jolt of self-consciousness making him aware of the picture he made, except the idea of anyone seeing him
+他的发出闷闷的叫声，他一边扭动身体，一边更加用力地用他的虎口抚摸自己，将内裤上湿漉漉的布料在阴茎上来回拖动。他的裤子还敞开在大腿上；他飞过房间的时间不够长，速度也不够快，没能把裤子从他身上脱下来。他还穿着那双该死的鞋子，他看起来肯定像个猥琐的人，他无法克制自己，甚至连脱掉衣服的时间都不够。但他做不到，天哪，这种羞耻感让他的脸发烫，让他的肠子发紧，但他还是停不下来。这只会让情况变得更糟，自我意识的时不时的出现让他意识到他所做的一切，除了那个想法：如果任何人看到他
 
-(—of Wayne seeing him, looking at him like this, standing over Clark with his hands in his pockets and watching with that cool amused slant to his mouth as Clark writhed and shuddered and jerked himself frantically—)
+(Wayne看到他，看着他这个样子，双手插在口袋里，站在Clark身旁，嘴角带着一丝冷酷的笑意，看着Clark扭动着身体，颤抖着，疯狂地抽搐着--)
 
-only drove the urgent throbbing heat higher. The faster his hand moved over himself, the more desperately he thrust into his own palm, the more helplessly he needed it, and the more gut-churningly ashamed he was, a spiraling loop he couldn't escape.
+而这想法只会让紧迫的悸动热度更高。他的手在自己身上摩擦得越快，他就越是拼命地操着自己的手掌，他就越是无助地需要它，他就越是感到羞愧难当，这是一个无法摆脱的螺旋循环。
 
-He couldn't bear it, and he loved every second of it. There was no room in him for anything else, nothing in the world except his hands and his cock, his body and the way it felt, the memory of Wayne's grip, the shape of Wayne's mouth—
+他无法忍受这一切，他喜欢这每一秒。他的脑子已经没有任何空余的地方可以留给除了他的手和他的阴茎，他的身体和他的感受——Wayne抓住他的手时的感受，Wayne嘴巴的形状
 
-He came, tipping over, the edge of it as thin as a knife before it rose up in a sudden vast surge of pleasure and drowned him; and he bit down so hard on his own hand that it almost hurt, a sharp tingling throb in counterpoint to the thick aching pulses of his cock.
+他高潮了，翻倒在地，快感的边缘像刀刃一样尖利，然后突然涌起一股巨大的快感，淹没了他；他狠狠地咬住自己的手，几乎疼得要命，尖锐刺痛的悸动与阴茎粗大疼痛的脉搏形成了对比。
 
-God, he thought dimly, lying there after. It had never been like that before. And he had no idea what he was going to do about it.
+天哪，他躺在那晕头转向地想。以前从来没有这样过。他不知道自己该怎么办。
 
 --------------------------------------------------------------------
 
