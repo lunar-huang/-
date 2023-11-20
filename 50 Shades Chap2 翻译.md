@@ -87,3 +87,122 @@ Clark也许应该心存感激。Wayne意识到了，但没有说什么，没有�
 Clark吞了吞口水。他浑身的皮肤都在刺痛，他无助、无意识地移动着重心，手掌紧紧地贴在门上，不停地出汗。最要命的是，他起反应了。他暗自庆幸，至少在工作或公共场合他还能忍住。他有一种恐慌的冲动，想忽略它，想假装它没有发生，但已经没有什么可想的了，也无处可逃了。为了不让自己在《星球日报》的办公室里落得如此下场，他已经耗尽了所有的注意力，而现在他一点也不剩了。他的阴茎在裤裆里沉甸甸的，随着他越来越用力，随着拉链的束缚越来越紧张，一股缓慢而深沉的悸动逐渐增强。
 
 他不能这么做。他不———他甚至都不喜欢Wayne。他都不知道自己想要什么，不知道Wayne握住他手腕的手对他做了什么。但他无法克制，无法摆脱。他--他需要--
+
+他再也克制不住了。他从门上挪开一只手，摸索着解开纽扣，撕开拉链，而不是拉开它，所用的力道比他预计的要大得多，但老天爷啊，他自己的指关节每碰一下他的阴茎，都让他浑身一震，感觉实在太好又太过了，以至于他已经气喘吁吁、扭动不已了。他朦胧地意识到，这不仅仅是力道的问题；速度、知觉也已经离他远去，他感觉飘飘欲仙，一切都变得膨胀起来，时间的流速好像放缓了十倍，感觉也放大了十倍。即使是裤子上的布料在他股间、大腿间最微弱的摩擦，感觉都像是来自一只手不急不缓，深思熟虑的按压。
+
+（-来自Wayne的手-）
+
+他把眼睛闭得更紧，抬起另一只手，咬住手掌根部、大拇指根部，这样，即使喉咙深处的声音散逸出来，也不会传出太远。
+
+他没有费心把内裤脱下。他设法把裤子从大腿上褪下，手指在途中蹭过鸡巴，即使隔着布料，也让他难以忍受。他无助地动了动，将被困住的勃起的阴茎的推到掌心，然后用手拢住它，挤压，他已经非常兴奋了，天哪--布料变得潮湿、粘连，它紧紧地贴在上面，当他的手在自己的形状上摩擦时，那种感觉是如此美妙，让他浑身颤抖。然后糟糕，门，他能感觉到铰链在晃动；他跌跌撞撞地离开门，从地板上站起来，扑向自己的床，因为他不能一边走路一边自慰，不能忍受把手从自己身上移开，至少如果他躺着，如果他脚下没有地板支撑，他就可能不会捏碎什么东西。
+
+He landed as gently as he could manage. Which at this point meant he got close and then bumped the heel of his hand against the head of his cock by mistake, where it was shoved up against the waistband of his briefs, and choked, jerked a foot higher through the air and then fell the whole way at once. And it was stupid, but it was—the change, from floating effortlessly to letting gravity drag him down again, felt almost like a weight settling over him; felt almost like a body settling over him, like being pressed into place and then held there firmly. Like he wasn't supposed to get up again, like he wasn't allowed to, and jesus, that was so goddamn good—
+
+He cried out, muffled, around the base of his thumb, and squirmed as he stroked himself harder, dragged the wet fabric of his briefs up and down his cock. His pants were still open around his thighs; the flight across the room hadn't been long enough or fast enough to pull them off him. He still had his goddamn shoes on, and he had to look obscene—like he couldn't even control himself long enough to get out of his clothes. But he couldn't, jesus, and the shame of it made his face hot, made his gut tight, but he still couldn't stop. It only made it worse, the jolt of self-consciousness making him aware of the picture he made, except the idea of anyone seeing him
+
+(—of Wayne seeing him, looking at him like this, standing over Clark with his hands in his pockets and watching with that cool amused slant to his mouth as Clark writhed and shuddered and jerked himself frantically—)
+
+only drove the urgent throbbing heat higher. The faster his hand moved over himself, the more desperately he thrust into his own palm, the more helplessly he needed it, and the more gut-churningly ashamed he was, a spiraling loop he couldn't escape.
+
+He couldn't bear it, and he loved every second of it. There was no room in him for anything else, nothing in the world except his hands and his cock, his body and the way it felt, the memory of Wayne's grip, the shape of Wayne's mouth—
+
+He came, tipping over, the edge of it as thin as a knife before it rose up in a sudden vast surge of pleasure and drowned him; and he bit down so hard on his own hand that it almost hurt, a sharp tingling throb in counterpoint to the thick aching pulses of his cock.
+
+God, he thought dimly, lying there after. It had never been like that before. And he had no idea what he was going to do about it.
+
+--------------------------------------------------------------------
+
+第二天早上，当他再次回到办公室时，Wayne已经回复了他的电子邮件。
+
+Consider final approval from this point forward pre-emptively granted.
+
+清晰、简洁；这是Clark从Wayne口中得到的最专业的一句话，连一个表情符号都没有。就是这样，除了一个附件——还是Clark自己的文件，余下的访谈问题，重新保存过并在文件名中添加了“BW”。
+
+Clark打开了文件。Wayne已经写下了所有问题的答案。Clark应该对此感到高兴，他应该庆幸能够避免再次见到Wayne本人，这样他就永远不必面对Wayne在他体内唤醒的那些感受。但他看着那封只有一行文字的电子邮件，看着所有那些Wayne的回复，他感到空虚，空虚还有一点寒意，堵在他的胸口。他咬着嘴唇，揉了把脸——花了一分钟浏览了一下Wayne的回复，在读完第二句话后他就知道自己不会使用这份文件中的任何东西了。它平淡而圆滑，纯粹的公关，其中的任何一个词都没有意义。
+
+好吧。显然Wayne不会再打扰他了，不会——像以前那样盯着他，想要再次见到他，并坚持到底。那样更好。也必须如此。Clark会完成这个该死的档案，把剩下的烂摊子推回它本该属于的人，他再也不会想起这件事，这就是事件的结局了。
+
+剩下的时间里，他一直在挑选稿子，一篇一篇地重新整理。他想到了露易丝说过的话，关于钩子，关于有意让文章写些什么，哪怕是 "我不知道该怎么看待布鲁斯-韦恩"。这已经是一种结局了--开放式的、中断的、不会得到回答的问题。
+
+然后他又想到Wayne所说的话。*因为这可能会让读这篇文章的人开始想知道你长什么样。*他起初打算要删掉Wayne关于脱衣舞娘的那些言论，因为这看起来不太合适、也不尊重人；他仍然有百分之九十二的把握确定这就是原因。但他也很确定Wayne谈到这个话题一定有他的道理。Clark一直在努力不引起其他人的注意，不要出现在别人的视野中，很长一段时间他甚至都没有注意到这一点。在为星球日报撰写的文章中，他完全没有谈起自己。在大多数情况下，当Perry需要在报纸某处占据几英寸的版面时，当它是--有关城市内鸽子的事实时，看起来任何人都没有期望Clark Kent提供他的个人见解。
+
+但这种访谈的文章并不是这样的。这种文章需要更加私人一些。而这就是重点。需要加入——
+
+加入一点人情味。并不是说克拉克有资格尝试提供这一点，无论是字面上还是其他方面。
+
+他重写了开头，又增加了几段。他很诚恳。他不知道能指望从Wayne那里得到什么回复，也并不喜欢他，但如果说他在采访Wayne的过程中真正学到了什么，那就是这正是Wayne想要的。这对他来说感觉很尴尬，谈论他的想法、他的感受--尤其是想到那些因为Bruce Wayne的名字而点击这篇文章的人，会关心Clark Kent对一个和他交谈了十五分钟的人的看法。但这是他能想到的唯一能让整件事有进展的办法。
+
+到了下午，他实在没法忍受继续对着这团乱麻了。他放弃了，把它送给了Cat，如果她想把一切推翻重写，她也可以。Wayne可能是认为Clark可能会在他已经看过的草稿中加入一些新的回复，所以才先发制人地批准了，但他不可能在乎到收回草稿的程度。
+
+再也不会了。
+
+
+三天后，Clark心满意足地重新埋头于统计工作。不再是鸽子，他已经完成了对鸽子的研究；Perry让他继续研究狗、狗链法（要求再公共场合用狗链拴住狗或其他宠物的法律）和允许不栓绳的区域，以及人们对这两者的惊人的强烈意见。Cat给他发了封电子邮件，告诉他那篇文章已经登报了，他几乎都不想跳窗而逃了。这不是什么大事。
+
+文章写得还可以。它并没有像病毒一样传播开来。但Cat想占用Wayne 15 分钟的时间，因为他的名字仍然意味着点击率，而且事实证明，有人对那些不知道自己在做什么的记者很感兴趣，他们试图向Wayne追问答案，即使他们并没有真正得到任何信息。谁知道呢。
+
+Wayne没有试图联系Clark。不过，他也没理由会注意到这件事。他可能已经忘得一干二净了。
+
+不过事情进展还顺利。事实上，在接下来的一个半星期里，每次经过Clark的办公桌时，Cat都会对他露出善意的微笑。
+
+现在回想起来，他也许应该把这当作是一个警告。
+
+--------------------------------------------------------------
+
+他被叫到Perry的办公室，这本身并不意味着什么大事。他经常被叫去Perry的办公室。
+
+他起身，离开他的办公桌，然后才意识到他可能需要一些可以写字的东西，这取决于Perry是怎么想的，他是否希望Clark Kent做一些记录--他慌忙跑回来，倒抓起一个松散的记事本，用手指尖抓住一支笔。当他走进敞开的门时，他还在忙着把记事本翻过来，把笔换到空闲的手上；直到大难临头，他才真正抬起目光来。
+
+"我需要你，"Cat干脆利落地说，然后她转向Perry说，"我需要他。就一次活动。不管他现在在做什么，我都可以借你一个人做他目前的工作。"
+
+"什么？"Clark问道。
+
+"Kent？你确定吗？"Perry问Cat。
+
+这种怀疑多少有点侮辱人。但Clark宁愿接受它，而不是他脸上开始掠过的沉思神色，那双深思熟虑的眯起的眼睛表明他可能真的同意了。因为在Clark的内心深处，有一种冰冷的沉甸甸的感觉，他已经很清楚这是怎么回事了。
+
+果然，Cat接下来说："他上次已经有了一半的进度了，但他那次只有十五分钟。Perry——"
+
+"十五分钟，"Perry重复道，眼睛眯得更紧了一点。"而且Wayne对此没有异议？"
+
+"他——"
+
+"这是我们从Wayne那里获得个人批准最快的一次，"Cat在他耳边说。
+
+"但是——"Clark试图挣扎。
+
+"什么时候？"Perry问。
+
+"就在今晚。甚至都不用等到那么晚。"
+
+"Perry对Cat说："他早上不能放假。"然后，他又转过身对Clark说："你早上不能放假。"
+
+"我——"
+
+"我来为他做准备，"Cat说。"宾客名单上的所有大牌人物、背景、要注意的事项，一应俱全。"
+
+"好吧，"Perry果断地说。"Kent，你可以走了——你现在在忙什么？"
+
+"狗链法。"Clark自动说道。"但是..."
+
+"你不用再研究拴狗链的法律了，你现在去研究Wayne基金会的年度盛会"
+
+"我不能。"Clark说。
+
+Perry的眼睛眯得更紧了。"什么？为什么不行？你是认真的吗？"
+
+"Perry——"
+
+"自从你在这里工作以来，我没有一个星期不用忍受你发表关于我们报道什么、我们不报道什么、谁的声音重要以及我们如何选择重要内容的演讲。"Perry做了个扩张的手势，朝Clark伸出两根手指，然后做了个扔球的手势，接着又朝Clark伸出两根手指。"这还不符合你的标准？Wayne基金会做得很好，你知道的。真正的草根行动，你喜欢的那种。人们齐心协力，努力让当地社区变得更美好，而这还不够重要，不值得一提吗？"
+
+"不，我，"Clark无助地说。"这当然很重要--"
+
+"那就好，"Perry微笑着说。"开始——什么时候开始？"
+
+"八点。"Cat爽快地说。
+
+"八点开始，"佩里通知Clark。"提前十五分钟到那里准备好。"
+
+"好的，先生。"Clark挤出了一声回复。
+
+Cat伸出手，近乎亲切地拍了拍他的肩膀。"半小时后，我就来给你介绍情况，"她说，然后又说，"还有一件事，Perry，"Clark听懂了她的暗示，赶紧离开了。
