@@ -114,7 +114,7 @@ Clark吞了吞口水。他浑身的皮肤都在刺痛，他无助、无意识地
 
 第二天早上，当他再次回到办公室时，Wayne已经回复了他的电子邮件。
 
-Consider final approval from this point forward pre-emptively granted.
+*之前我们提到的印前批准，从现在起你已经得到了。*
 
 清晰、简洁；这是Clark从Wayne口中得到的最专业的一句话，连一个表情符号都没有。就是这样，除了一个附件——还是Clark自己的文件，余下的访谈问题，重新保存过并在文件名中添加了“BW”。
 
